@@ -15,7 +15,7 @@ I'm *Arief*, a **data analyst** and **data engineer** with a passion for extract
 
 ### 📬 **Connect with Me**
 - **Email**: ariefjkwicaksono@gmail.com
-- **LinkedIn**: [Connect on LinkedIn](www.linkedin.com/in/arief-joko-wicaksono-80a519141)
+- **LinkedIn**: [Connect on LinkedIn](https://www.linkedin.com/in/arief-joko-wicaksono-80a519141)
 
 ---
 
